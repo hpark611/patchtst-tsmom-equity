@@ -1,1 +1,0 @@
-# patchtst-tsmom-equity
